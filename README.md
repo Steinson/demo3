@@ -1,1 +1,0 @@
-aggiungere descrizione di un vincitore TA
